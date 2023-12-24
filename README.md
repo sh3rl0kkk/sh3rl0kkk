@@ -1,1 +1,2 @@
-https://avatars.mds.yandex.net/i?id=981dea5afebde146a4694124884242408da1d30e-9833563-images-thumbs&n=13
+
+![1693056431_lyusi](https://github.com/sh3rl0kkk/sh3rl0kkk/assets/147928632/811ccc4d-313b-4a93-aa06-b319d990e090)
